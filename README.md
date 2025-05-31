@@ -51,7 +51,7 @@ Support with   so I can buy   and keep being  !
   -   Site: Coming soon — stay curious...
 
 ---
- # ❤️❤️❤❤️❤️ INITIATING HUMANITY MODE...❤️❤️❤❤️❤️
+ # ❤️❤❤️ INITIATING HUMANITY MODE for Down Syndrome❤️❤❤️
 ---
 
   Target Locked: Anak-anak Pejuang Down Syndrome  
